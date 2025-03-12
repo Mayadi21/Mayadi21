@@ -1,4 +1,4 @@
-### Hi there, I'm [Mayadi Alamsyah Putra Silalahi](https://Mayadi21.github.io) 👋
+### Hi there, I'm [Mayadi Alamsyah Putra Silalahi](https://mayadi21.github.io/Mayadi21/) 👋
 
 
 I am currently studying in Universitas Sumatera Utara
